@@ -1,0 +1,1 @@
+# simbolu_virknes
